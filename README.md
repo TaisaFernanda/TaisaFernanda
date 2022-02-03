@@ -1,5 +1,5 @@
-- 🌈 Taísa Fernanda | 25y | Information Systems student | Software Trainee | Jaboticabal-SP
-- 🌐 Tech Aficionado, computer forensics, beer and video games.  
+- 🌈 Taísa Fernanda | 25y | Information Systems student | Software Trainee
+- 🌐 Tech and Computer Forensics aficionado
 
 
 <!---
