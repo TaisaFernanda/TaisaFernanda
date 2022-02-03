@@ -1,4 +1,4 @@
-- 🌈 Taísa Fernanda | 25y | Information Systems student | Jaboticabal-SP
+- 🌈 Taísa Fernanda | 25y | Information Systems student | Software Trainee | Jaboticabal-SP
 - 🌐 Tech Aficionado, computer forensics, beer and video games.  
 
 
