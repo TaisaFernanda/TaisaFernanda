@@ -1,4 +1,4 @@
-- 🌈 Taísa Fernanda | 25y | Information Systems student | Software Trainee
+- 🌈 Taísa Fernanda | 26y | Information Systems student | Software Trainee
 - 🌐 Tech and Computer Forensics aficionado
 
 
