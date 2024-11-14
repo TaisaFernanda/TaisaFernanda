@@ -1,4 +1,4 @@
-- 🌈 Taísa Fernanda | 26y | Information Systems graduated | BI Developer
+- 🌈 Taísa Fernanda | Information Systems graduated | BI Developer
 - 🌐 Data Analysis 
 
 
